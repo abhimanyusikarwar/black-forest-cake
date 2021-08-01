@@ -1,0 +1,1 @@
+choclate,cream,cherry,egg,Kirsh,whipped cream,butter,dark choclate,sugar,cocoa powder,icing sugar,baking powder,vanilla extract
